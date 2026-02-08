@@ -1,1 +1,0 @@
-# Ficha-tecnica_projetos
